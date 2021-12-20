@@ -1,0 +1,5 @@
+- 👋 Hello! I’m @Schnerticus!
+- 👀 I’m interested in classic muscle cars, space, coding (duh), games, mods for the games, and making my own game company!
+- 🌱 Coding is still new to me so i would like to learn all kinds of code but my top 3 are Python, Java Script, and Block Coding
+- 💞️ I’m looking to collaborate on mods and possibly games
+- 📫 How to reach me 156840@west-fargo.k12.nd.us
